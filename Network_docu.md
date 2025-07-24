@@ -11,7 +11,7 @@
 ![Image 2025-07-24 at 9 31 AM](https://github.com/user-attachments/assets/be1cb44f-f80b-4503-a312-ea57f08c3660)
 
 * 4
-![Image 2025-07-24 at 9 31 AM (1)](https://github.com/user-attachments/assets/ce6d8515-3a35-49ba-b286-7ccf94db2376)
+![Image 2025-07-24 at 10 05 AM](https://github.com/user-attachments/assets/f535aa16-06b0-4a7a-a17d-550c24a35e86)
 
 * 5
 ![Image 2025-07-24 at 9 31 AM (2)](https://github.com/user-attachments/assets/e3963976-2b57-4888-9e86-c89d0dcc43a4)
@@ -22,4 +22,4 @@
 
 * 7
 
-![Image 2025-07-24 at 9 32 AM (1)](https://github.com/user-attachments/assets/b60d4f4e-4687-45ba-9fdd-a3e822b3ebc7)
+![Image 2025-07-24 at 10 07 AM](https://github.com/user-attachments/assets/5f66c05f-0498-46f6-a02a-6444d151def0)
